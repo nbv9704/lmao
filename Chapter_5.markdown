@@ -1,6 +1,6 @@
 # Chương 5: Ánh sáng cuối đường hầm
 
-Nam tiếp tục gõ, giọng nghiêm túc, cố kéo Toàn ra khỏi mớ suy nghĩ tiêu cực. Cậu nhắc lại tầm quan trọng của gia đình, hy vọng Toàn sẽ nhìn nhận mọi thứ tích cực hơn.
+Việt tiếp tục gõ, giọng nghiêm túc, cố kéo Toàn ra khỏi mớ suy nghĩ tiêu cực. Cậu nhắc lại tầm quan trọng của gia đình, hy vọng Toàn sẽ nhìn nhận mọi thứ tích cực hơn.
 
 ```
 Khóc đc cho gđ r thì mấy cái khác khóc quá khó.
@@ -15,7 +15,7 @@ Tuỳ ng.
 💸.
 ```
 
-Nam bật cười, nhưng trong lòng thấy thương. Cậu gõ nhanh, cảm giác như đang nhìn lại chính mình của quá khứ.
+Việt bật cười, nhưng trong lòng thấy thương. Cậu gõ nhanh, cảm giác như đang nhìn lại chính mình của quá khứ.
 
 ```
 Sao càng nói.
@@ -30,7 +30,7 @@ Toàn nhắn lại, giọng pha chút tức giận, như bị chọc trúng tim 
 😡.
 ```
 
-Nam nhếch môi, tiếp tục chọc để Toàn bật cười.
+Việt nhếch môi, tiếp tục chọc để Toàn bật cười.
 
 ```
 Tôi đã đủ trưởng thành r sao.
@@ -44,7 +44,7 @@ Toàn đáp lại, giọng pha chút tự giễu, như thể bắt đầu thả 
 Thế tốt.
 ```
 
-Nam gõ nhanh, giọng nghiêm túc, cố truyền tải sự chân thành.
+Việt gõ nhanh, giọng nghiêm túc, cố truyền tải sự chân thành.
 
 ```
 Nói chung là kệ e th.
@@ -57,7 +57,7 @@ Toàn nhắn lại, giọng yếu ớt, nhưng đã bớt nặng nề.
 Bt ngta chỉ tâm trạng buồn tuỳ lúc là dc 👍.
 ```
 
-Nam nhíu mày, cảm giác bực mình xen lẫn lo lắng, nhưng cậu quyết định chọc thêm để kéo Toàn ra khỏi tâm trạng ấy.
+Việt nhíu mày, cảm giác bực mình xen lẫn lo lắng, nhưng cậu quyết định chọc thêm để kéo Toàn ra khỏi tâm trạng ấy.
 
 ```
 Xong e này ngủ giấc.
@@ -73,7 +73,7 @@ Toàn nhắn lại, giọng đầy bất lực, nhưng đã có chút dí dỏm.
 Whatever.
 ```
 
-Nam bật cười, tiếp tục chọc, hy vọng Toàn sẽ cười theo.
+Việt bật cười, tiếp tục chọc, hy vọng Toàn sẽ cười theo.
 
 ```
 Nghe như nyc tao.
@@ -88,7 +88,7 @@ Ukm.
 Tôi bẩn.
 ```
 
-Nam nhếch môi, gõ nhanh, giọng điệu pha chút chọc ghẹo.
+Việt nhếch môi, gõ nhanh, giọng điệu pha chút chọc ghẹo.
 
 ```
 Rửa đi.
@@ -100,7 +100,7 @@ Toàn đáp lại, giọng yếu ớt, nhưng đã có chút hài hước.
 Ko rửa.
 ```
 
-Nam lắc đầu, quyết định đẩy thêm một câu để Toàn phải phản ứng.
+Việt lắc đầu, quyết định đẩy thêm một câu để Toàn phải phản ứng.
 
 ```
 K rửa thì làm nkp đúng r.
@@ -113,7 +113,7 @@ Toàn nhắn lại, giọng đầy bất lực, nhưng đã bắt đầu đùa l
 Xuỳ xuỳ.
 ```
 
-Nam bật cười, cảm giác nhẹ nhõm hơn. Cậu gõ nhanh, cố kéo Toàn vào những câu đùa nhảm.
+Việt bật cười, cảm giác nhẹ nhõm hơn. Cậu gõ nhanh, cố kéo Toàn vào những câu đùa nhảm.
 
 ```
 Nói cho e này.
@@ -128,7 +128,7 @@ Giờ xục đi.
 Rách.
 ```
 
-Nam bật cười thành tiếng, gõ nhanh, giọng điệu pha chút chọc ghẹo.
+Việt bật cười thành tiếng, gõ nhanh, giọng điệu pha chút chọc ghẹo.
 
 ```
 Rách thì th.
@@ -144,7 +144,7 @@ Dạ ck.
 💸.
 ```
 
-Nam nhíu mày, tiếp tục chọc, hy vọng Toàn sẽ cười to hơn.
+Việt nhíu mày, tiếp tục chọc, hy vọng Toàn sẽ cười to hơn.
 
 ```
 ?
@@ -157,7 +157,7 @@ Hum lói nữa thì thui ọ.
 Eim đi ngụ.
 ```
 
-Nam lắc đầu, gõ nhanh, giọng nghiêm túc xen lẫn hài hước.
+Việt lắc đầu, gõ nhanh, giọng nghiêm túc xen lẫn hài hước.
 
 ```
 ?
@@ -171,7 +171,7 @@ Xuỳ xuỳ.
 Nô lệ của nụ cười.
 ```
 
-Nam bật cười, cảm giác như Toàn đã nhẹ lòng hơn, dù chỉ một chút.
+Việt bật cười, cảm giác như Toàn đã nhẹ lòng hơn, dù chỉ một chút.
 
 ```
 Tôi khong cuoi vi toi muon cuoi, toi cuoi vi cuoc doi bat toi phai cuoi.
@@ -185,7 +185,7 @@ Aiza.
 Whatever.
 ```
 
-Nam nhếch môi, tiếp tục chọc để Toàn bật cười.
+Việt nhếch môi, tiếp tục chọc để Toàn bật cười.
 
 ```
 Từ từ đã.
@@ -201,7 +201,7 @@ Lms để ngủ mà đầu ko nghĩ gì.
 Chịu rồi.
 ```
 
-Nam gõ nhanh, giọng nghiêm túc xen lẫn chọc ghẹo.
+Việt gõ nhanh, giọng nghiêm túc xen lẫn chọc ghẹo.
 
 ```
 Uống cà phê phin đi e.
@@ -222,7 +222,7 @@ Thế là ngủ dc.
 💸.
 ```
 
-Nam bật cười, cảm giác như Toàn cuối cùng cũng mở lòng, dù chỉ một chút. Cậu gõ nhanh, giọng điệu pha chút chọc ghẹo.
+Việt bật cười, cảm giác như Toàn cuối cùng cũng mở lòng, dù chỉ một chút. Cậu gõ nhanh, giọng điệu pha chút chọc ghẹo.
 
 ```
 ????
@@ -237,7 +237,7 @@ Thì sao.
 ?
 ```
 
-Nam nhếch môi, tiếp tục chọc để Toàn bật cười.
+Việt nhếch môi, tiếp tục chọc để Toàn bật cười.
 
 ```
 Nhìn bây h xong thấy xưa bẩn là đc mà.
@@ -249,7 +249,7 @@ Toàn nhắn lại, giọng pha chút tự giễu, như thể đã thấm phần
 Vua sến súa.
 ```
 
-Nam gõ nhanh, giọng nghiêm túc, cố truyền tải sự chân thành.
+Việt gõ nhanh, giọng nghiêm túc, cố truyền tải sự chân thành.
 
 ```
 Thế là hết suy.
@@ -263,4 +263,4 @@ Chỉ có bẩn ít đi.
 Nhma đỡ hơn xưa là cái chắc.
 ```
 
-Nam nhíu mày, cảm giác nhẹ nhõm hơn. Toàn đã bắt đầu nhìn thấy ánh sáng, dù chỉ là một tia nhỏ.
+Việt nhíu mày, cảm giác nhẹ nhõm hơn. Toàn đã bắt đầu nhìn thấy ánh sáng, dù chỉ là một tia nhỏ.
