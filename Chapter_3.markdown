@@ -1,6 +1,6 @@
 # Chương 3: Lời khuyên từ trái tim
 
-Nam ngồi thẳng dậy, ánh sáng màn hình hắt lên khuôn mặt cậu. Cậu biết, nếu cứ chọc ghẹo, Toàn sẽ lại lảng tránh. Đã đến lúc nói thật. Cậu bắt đầu gõ một tràng dài, như thể đang ngồi đối diện Toàn, nhìn thẳng vào mắt nó.
+Việt ngồi thẳng dậy, ánh sáng màn hình hắt lên khuôn mặt cậu. Cậu biết, nếu cứ chọc ghẹo, Toàn sẽ lại lảng tránh. Đã đến lúc nói thật. Cậu bắt đầu gõ một tràng dài, như thể đang ngồi đối diện Toàn, nhìn thẳng vào mắt nó.
 
 ```
 Đm.
@@ -15,7 +15,7 @@ Toàn nhắn lại, giọng đầy nghi ngờ, như không muốn vào Discord.
 Ko.
 ```
 
-Nam nhíu mày, cảm giác bực mình xen lẫn lo lắng.
+Việt nhíu mày, cảm giác bực mình xen lẫn lo lắng.
 
 ```
 Th đc r.
@@ -27,21 +27,21 @@ Toàn đáp lại, giọng yếu ớt, như thể bị ép phải nói.
 May là còn nhắn.
 ```
 
-Nam lắc đầu, tiếp tục đẩy, giọng điệu pha chút cáu kỉnh.
+Việt lắc đầu, tiếp tục đẩy, giọng điệu pha chút cáu kỉnh.
 
 ```
 ?
 Thích may k.
 ```
 
-Toàn nhắn lại, kèm một emoji tức giận, như thể bị Nam chọc quá nhiều.
+Toàn nhắn lại, kèm một emoji tức giận, như thể bị Việt chọc quá nhiều.
 
 ```
 ?
 😡.
 ```
 
-Nam bật cười, nhưng trong lòng thấy thương. Cậu gõ nhanh, giọng nghiêm túc hơn.
+Việt bật cười, nhưng trong lòng thấy thương. Cậu gõ nhanh, giọng nghiêm túc hơn.
 
 ```
 ?
@@ -54,7 +54,7 @@ Toàn đáp lại, giọng đầy nghi ngờ.
 J.
 ```
 
-Nam nhếch môi, bắt đầu chia sẻ trải nghiệm cá nhân, hy vọng Toàn sẽ thấm.
+Việt nhếch môi, bắt đầu chia sẻ trải nghiệm cá nhân, hy vọng Toàn sẽ thấm.
 
 ```
 E phải hiểu là.
@@ -75,7 +75,7 @@ Nói thì nói đi.
 Tin mess = bán nhà.
 ```
 
-Nam lắc đầu, tiếp tục, giọng điệu pha chút chọc ghẹo.
+Việt lắc đầu, tiếp tục, giọng điệu pha chút chọc ghẹo.
 
 ```
 Thế khó.
@@ -88,21 +88,21 @@ Ngta để im cho nói thì lại bảo đi ngủ.
 Trôn.
 ```
 
-Nam bật cười, gõ nhanh, cố kéo Toàn ra khỏi mớ suy nghĩ ấy.
+Việt bật cười, gõ nhanh, cố kéo Toàn ra khỏi mớ suy nghĩ ấy.
 
 ```
 Hiểu chưa ?
 Haiiii mi nà san.
 ```
 
-Toàn nhắn lại, giọng đầy nghi ngờ, như không hiểu Nam đang nói gì.
+Toàn nhắn lại, giọng đầy nghi ngờ, như không hiểu Việt đang nói gì.
 
 ```
 ?
 Ko hiểu 👍.
 ```
 
-Nam nhíu mày, quyết định nói thẳng, không vòng vo nữa.
+Việt nhíu mày, quyết định nói thẳng, không vòng vo nữa.
 
 ```
 K hiểu cặc.
@@ -120,7 +120,7 @@ Toàn đáp lại, giọng yếu ớt, như muốn né tránh.
 Ko phật lòng ai là dc.
 ```
 
-Nam lắc đầu, tiếp tục đẩy, giọng nghiêm túc hơn.
+Việt lắc đầu, tiếp tục đẩy, giọng nghiêm túc hơn.
 
 ```
 ?
@@ -133,7 +133,7 @@ Hehe.
 Sống vì ng khác 👍.
 ```
 
-Nam nhíu mày, cảm giác bực mình xen lẫn lo lắng.
+Việt nhíu mày, cảm giác bực mình xen lẫn lo lắng.
 
 ```
 Cặc.
@@ -148,7 +148,7 @@ Toàn đáp lại, giọng cay đắng.
 Thì lms.
 ```
 
-Nam gõ nhanh, giọng nghiêm túc, cố truyền tải triết lý sống của mình.
+Việt gõ nhanh, giọng nghiêm túc, cố truyền tải triết lý sống của mình.
 
 ```
 ?
@@ -169,7 +169,7 @@ Hix.
 Phí phạm quá mà.
 ```
 
-Nam bật cười, nhưng trong lòng thấy thương. Cậu gõ nhanh, chia sẻ trải nghiệm để Toàn thấm.
+Việt bật cười, nhưng trong lòng thấy thương. Cậu gõ nhanh, chia sẻ trải nghiệm để Toàn thấm.
 
 ```
 Có ai k thấy bản thân như cl à.
@@ -201,7 +201,7 @@ Nghe bài trình chưa.
 💸.
 ```
 
-Nam dừng lại, kể về cách cậu biến đổi cảm xúc, hy vọng Toàn sẽ học được gì đó.
+Việt dừng lại, kể về cách cậu biến đổi cảm xúc, hy vọng Toàn sẽ học được gì đó.
 
 ```
 Nên là.
@@ -240,4 +240,4 @@ Thấy con chó chạy ngoài đường cx cười.
 Kiểu kiểu v.
 ```
 
-Nam dừng lại, hy vọng Toàn đang đọc và thấm. Cậu biết, những lời này không dễ tiếp nhận, nhưng cậu muốn Toàn hiểu rằng đời không chỉ có lụy tình.
+Việt dừng lại, hy vọng Toàn đang đọc và thấm. Cậu biết, những lời này không dễ tiếp nhận, nhưng cậu muốn Toàn hiểu rằng đời không chỉ có lụy tình.
