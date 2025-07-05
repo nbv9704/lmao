@@ -1,6 +1,6 @@
 # Chương 4: Bức tường của Toàn
 
-Nam tiếp tục gõ, giọng nghiêm túc, cố kéo Toàn ra khỏi cái hố sâu mà thằng bạn đang tự đào. Cậu kể về cách nhìn nhận cuộc sống, về những gì Toàn đang có.
+Việt tiếp tục gõ, giọng nghiêm túc, cố kéo Toàn ra khỏi cái hố sâu mà thằng bạn đang tự đào. Cậu kể về cách nhìn nhận cuộc sống, về những gì Toàn đang có.
 
 ```
 Rồi đến lúc e nghĩ lại.
@@ -49,7 +49,7 @@ Tao biết là ví dụ này hơi ngủ vì e cảm xúc tình yêu với tao c�
 Nhma e sẽ hiểu th.
 ```
 
-Nam dừng lại, kể về những lần cậu bị mắng ở chỗ làm, về cách cậu giữ bình tĩnh.
+Việt dừng lại, kể về những lần cậu bị mắng ở chỗ làm, về cách cậu giữ bình tĩnh.
 
 ```
 Thì tao đi làm, tao làm sai, tao bị nói.
@@ -63,7 +63,7 @@ Xong r xúc động.
 K biết nó phải điều tích cực k nhma nó như buff.
 ```
 
-Nam nhắc đến ông anh của Toàn, người mà Toàn luôn kính trọng, để khích lệ thằng bạn.
+Việt nhắc đến ông anh của Toàn, người mà Toàn luôn kính trọng, để khích lệ thằng bạn.
 
 ```
 Tao nhắc đến cái sau đây k phải vì muốn e nhớ lại mà vì tao respect.
@@ -107,14 +107,14 @@ quả này viết tiểu luận.
 Bá cháy.
 ```
 
-Toàn nhắn lại, giọng vẫn nặng nề, như chưa thấm hết những gì Nam nói.
+Toàn nhắn lại, giọng vẫn nặng nề, như chưa thấm hết những gì Việt nói.
 
 ```
 Haizzz.
 Tâm trạng thất thường nên khó nói.
 ```
 
-Nam nhíu mày, cảm giác bực mình xen lẫn lo lắng. Cậu gõ nhanh, giọng điệu pha chút cáu kỉnh.
+Việt nhíu mày, cảm giác bực mình xen lẫn lo lắng. Cậu gõ nhanh, giọng điệu pha chút cáu kỉnh.
 
 ```
 Cứ khó nói.
@@ -127,7 +127,7 @@ Toàn đáp lại, giọng yếu ớt, như muốn né tránh.
 Nhma vẫn trong tầm kiểm soát thôi.
 ```
 
-Nam lắc đầu, tiếp tục đẩy, hy vọng Toàn sẽ mở lòng.
+Việt lắc đầu, tiếp tục đẩy, hy vọng Toàn sẽ mở lòng.
 
 ```
 Vấn đề là e phải nói.
@@ -143,7 +143,7 @@ Rồi tự nó hết.
 Cuộc sống lại bth.
 ```
 
-Nam nhíu mày, cảm giác như muốn đấm thằng bạn qua màn hình.
+Việt nhíu mày, cảm giác như muốn đấm thằng bạn qua màn hình.
 
 ```
 Thì là do e chưa đủ tin tưởng tao th.
@@ -155,7 +155,7 @@ Toàn đáp lại, giọng pha chút tự giễu.
 Ahh môment.
 ```
 
-Nam gõ nhanh, giọng nghiêm túc, cố kéo Toàn ra khỏi cái vỏ bọc.
+Việt gõ nhanh, giọng nghiêm túc, cố kéo Toàn ra khỏi cái vỏ bọc.
 
 ```
 Như tao đã nói là tao dễ tính.
@@ -168,7 +168,7 @@ Toàn nhắn lại, giọng yếu ớt, như thể bị ép phải nói.
 Hụ hụ.
 ```
 
-Nam bật cười, nhưng trong lòng thấy thương.
+Việt bật cười, nhưng trong lòng thấy thương.
 
 ```
 Trung bình random shit moment.
@@ -182,7 +182,7 @@ Nhma chuyện thầm kín thì khó.
 Chỉ dám vt nhật ký.
 ```
 
-Nam lắc đầu, quyết định nhắc đến chuyện gia đình của Toàn để khích lệ.
+Việt lắc đầu, quyết định nhắc đến chuyện gia đình của Toàn để khích lệ.
 
 ```
 Cứ thầm kín.
@@ -200,7 +200,7 @@ Toàn nhắn lại, giọng đầy nghi ngờ.
 J.
 ```
 
-Nam nhếch môi, tiếp tục đẩy, giọng điệu pha chút chọc ghẹo.
+Việt nhếch môi, tiếp tục đẩy, giọng điệu pha chút chọc ghẹo.
 
 ```
 J cc.
@@ -216,7 +216,7 @@ Toàn nhắn lại, giọng cay đắng, như thể bị ép vào góc tường.
 Haizz.
 ```
 
-Nam gõ nhanh, giọng nghiêm túc, cố truyền tải sự chân thành.
+Việt gõ nhanh, giọng nghiêm túc, cố truyền tải sự chân thành.
 
 ```
 Chứ bth.
@@ -236,7 +236,7 @@ Tâm trạng tốt thì cái gì nghĩ cũng tốt.
 Xấu thì trời còn ko cứu dc.
 ```
 
-Nam bật cười, nhưng trong lòng thấy thương. Cậu gõ nhanh, cố kéo Toàn ra khỏi mớ suy nghĩ ấy.
+Việt bật cười, nhưng trong lòng thấy thương. Cậu gõ nhanh, cố kéo Toàn ra khỏi mớ suy nghĩ ấy.
 
 ```
 Thế tâm trạng xấu tao trong mắt e phải ngang batman.
@@ -249,12 +249,12 @@ I have two sides.
 Em ko hiểu dc đâu hic.
 ```
 
-Nam nhếch môi, tiếp tục chọc để Toàn bật cười.
+Việt nhếch môi, tiếp tục chọc để Toàn bật cười.
 
 ```
 Batman hay Fatman thì k biết.
 =)))
-E này với e Nam.
+E này với e Việt.
 Cứ có cái câu này.
 Bẩn.
 ```
@@ -265,7 +265,7 @@ Toàn đáp lại, giọng yếu ớt.
 Thì sao.
 ```
 
-Nam lắc đầu, quyết định nói thẳng, không vòng vo nữa.
+Việt lắc đầu, quyết định nói thẳng, không vòng vo nữa.
 
 ```
 Biết sao tao đ hiểu k.
@@ -279,7 +279,7 @@ Toàn nhắn lại, giọng nặng nề.
 Đã buồn thì chớ.
 ```
 
-Nam nhíu mày, cảm giác bực mình xen lẫn lo lắng.
+Việt nhíu mày, cảm giác bực mình xen lẫn lo lắng.
 
 ```
 Buồn cc.
@@ -293,7 +293,7 @@ Càng nói càng buồn.
 Thế nên mới ko muốn nói.
 ```
 
-Nam gõ nhanh, giọng nghiêm túc, cố kéo Toàn ra khỏi cái hố sâu.
+Việt gõ nhanh, giọng nghiêm túc, cố kéo Toàn ra khỏi cái hố sâu.
 
 ```
 Buồn xong mới hết buồn.
@@ -305,7 +305,7 @@ Toàn nhắn lại, giọng đầy bất lực.
 Anh ko muốn khóc giữa chốn đông ng đâu.
 ```
 
-Nam lắc đầu, tiếp tục đẩy, hy vọng Toàn sẽ mở lòng.
+Việt lắc đầu, tiếp tục đẩy, hy vọng Toàn sẽ mở lòng.
 
 ```
 Hay e muốn buồn ít xong buồn dai dẳng.
@@ -319,7 +319,7 @@ Toàn đáp lại, giọng yếu ớt.
 Dai dẳng thì có sao.
 ```
 
-Nam nhếch môi, giọng nghiêm túc, cố truyền tải sự chân thành.
+Việt nhếch môi, giọng nghiêm túc, cố truyền tải sự chân thành.
 
 ```
 Chả ai muốn khóc chỗ đông ng.
@@ -332,7 +332,7 @@ Toàn nhắn lại, giọng cay đắng.
 Mỗi ngày gặm 1 tí rồi sẽ hết.
 ```
 
-Nam lắc đầu, quyết định nhắc lại tầm quan trọng của gia đình.
+Việt lắc đầu, quyết định nhắc lại tầm quan trọng của gia đình.
 
 ```
 E khóc đủ nh về chuyện gia đình đi thì e hiểu.
@@ -350,7 +350,7 @@ Toàn nhắn lại, giọng nặng nề.
 Haizzz.
 ```
 
-Nam gõ nhanh, giọng nghiêm túc, cố kéo Toàn ra khỏi mớ suy nghĩ ấy.
+Việt gõ nhanh, giọng nghiêm túc, cố kéo Toàn ra khỏi mớ suy nghĩ ấy.
 
 ```
 Dù tao bảo e là ưu tiên bản thân nhưng nếu để chọn thì tao vẫn ưu tiên gđ.
@@ -364,7 +364,7 @@ Toàn đáp lại, giọng pha chút tự giễu.
 Ngta khóc đủ nhiều để giờ nó mới chuyển sang cái khác.
 ```
 
-Nam nhíu mày, cảm giác bực mình xen lẫn lo lắng. Cậu biết Toàn vẫn đang cố dựng bức tường, nhưng cậu không định bỏ cuộc.
+Việt nhíu mày, cảm giác bực mình xen lẫn lo lắng. Cậu biết Toàn vẫn đang cố dựng bức tường, nhưng cậu không định bỏ cuộc.
 
 ```
 Nó chỉ gặm xong rồi nó lại hồi lại.
@@ -380,4 +380,4 @@ Gặm là hết.
 Tôi vua gặm nhấm.
 ```
 
-Nam lắc đầu, hy vọng Toàn sẽ sớm mở lòng, dù chỉ một chút.
+Việt lắc đầu, hy vọng Toàn sẽ sớm mở lòng, dù chỉ một chút.
