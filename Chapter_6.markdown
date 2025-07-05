@@ -1,6 +1,6 @@
 # Chương 6: Kết thúc một đêm dài
 
-Nam tiếp tục gõ, giọng nghiêm túc xen lẫn hài hước, cố kéo Toàn ra khỏi những suy nghĩ còn sót lại. Cậu biết Toàn đã thấm phần nào, nhưng vẫn cần một chút đùa nhảm để kết thúc đêm dài.
+Việt tiếp tục gõ, giọng nghiêm túc xen lẫn hài hước, cố kéo Toàn ra khỏi những suy nghĩ còn sót lại. Cậu biết Toàn đã thấm phần nào, nhưng vẫn cần một chút đùa nhảm để kết thúc đêm dài.
 
 ```
 Xưa bẩn ít đi đ j.
@@ -15,7 +15,7 @@ Rẻ rách đụt cận trĩ chả làm dc cái lồn gì hồi xưa.
 Hẹ hẹ.
 ```
 
-Nam bật cười, tưởng tượng cái mặt Toàn lúc này, có lẽ đang nhếch môi cười nhạt.
+Việt bật cười, tưởng tượng cái mặt Toàn lúc này, có lẽ đang nhếch môi cười nhạt.
 
 ```
 Ch biết mèo nào cắn mỉu nào.
@@ -34,7 +34,7 @@ Giá mà.
 Nhìn lại thấy ghét quá.
 ```
 
-Nam nhếch môi, tiếp tục chọc để Toàn bật cười.
+Việt nhếch môi, tiếp tục chọc để Toàn bật cười.
 
 ```
 Đcm.
@@ -50,7 +50,7 @@ Tại vì tôi ngu si.
 Lòng tôi ko suy nghĩ.
 ```
 
-Nam gõ nhanh, giọng nghiêm túc, cố truyền tải sự chân thành.
+Việt gõ nhanh, giọng nghiêm túc, cố truyền tải sự chân thành.
 
 ```
 Tót.
@@ -66,7 +66,7 @@ Toàn nhắn lại, giọng đầy bất lực, nhưng đã có chút lạc quan
 Nah.
 ```
 
-Nam lắc đầu, tiếp tục đẩy, hy vọng Toàn sẽ thấm.
+Việt lắc đầu, tiếp tục đẩy, hy vọng Toàn sẽ thấm.
 
 ```
 Ăn mày quá khứ thì bản thân hiện tại cant tốt hơn.
@@ -81,7 +81,7 @@ Hẹ hẹ.
 👍.
 ```
 
-Nam nhíu mày, cảm giác bực mình xen lẫn lo lắng, nhưng cậu quyết định chọc thêm.
+Việt nhíu mày, cảm giác bực mình xen lẫn lo lắng, nhưng cậu quyết định chọc thêm.
 
 ```
 Clm.
@@ -96,7 +96,7 @@ Toàn nhắn lại, giọng pha chút tự giễu, như thể đã thấm phần
 Tốt.
 ```
 
-Nam bật cười, gõ nhanh, giọng điệu pha chút chọc ghẹo.
+Việt bật cười, gõ nhanh, giọng điệu pha chút chọc ghẹo.
 
 ```
 ??????????.
@@ -110,7 +110,7 @@ Tôi luỵ vì tôi nhớ kỉ niệm với cô ấy.
 Chứ hết yêu rồi.
 ```
 
-Nam nhếch môi, cảm giác như vừa thắng một ván game căng thẳng.
+Việt nhếch môi, cảm giác như vừa thắng một ván game căng thẳng.
 
 ```
 Riu ?.
@@ -122,7 +122,7 @@ Toàn nhắn lại, giọng cay đắng, nhưng đã nhẹ nhõm hơn.
 Haizzz.
 ```
 
-Nam gõ nhanh, giọng nghiêm túc, cố kéo Toàn ra khỏi chút u sầu còn lại.
+Việt gõ nhanh, giọng nghiêm túc, cố kéo Toàn ra khỏi chút u sầu còn lại.
 
 ```
 Chắc ch.
@@ -134,7 +134,7 @@ Toàn nhắn lại, giọng yếu ớt, nhưng đã có chút lạc quan.
 Chắc.
 ```
 
-Nam bật cười, tiếp tục chọc để Toàn bật cười.
+Việt bật cười, tiếp tục chọc để Toàn bật cười.
 
 ```
 Tạm tin.
@@ -147,7 +147,7 @@ Toàn nhắn lại, giọng pha chút tức giận, nhưng đã bắt đầu đ�
 ?
 ```
 
-Nam nhếch môi, gõ nhanh, giọng điệu pha chút chọc ghẹo.
+Việt nhếch môi, gõ nhanh, giọng điệu pha chút chọc ghẹo.
 
 ```
 Nào đủ thì bảo.
@@ -160,7 +160,7 @@ Bắt ng suy sục.
 Chịu.
 ```
 
-Nam lắc đầu, quyết định đẩy thêm một câu để Toàn phải phản ứng.
+Việt lắc đầu, quyết định đẩy thêm một câu để Toàn phải phản ứng.
 
 ```
 Chịu r.
@@ -173,7 +173,7 @@ Toàn nhắn lại, giọng nặng nề, nhưng đã bắt đầu thả lỏng.
 Hix.
 ```
 
-Nam gõ nhanh, giọng nghiêm túc xen lẫn hài hước.
+Việt gõ nhanh, giọng nghiêm túc xen lẫn hài hước.
 
 ```
 E đ biết à.
@@ -192,7 +192,7 @@ Ko có tâm trạng.
 💸.
 ```
 
-Nam nhíu mày, tiếp tục chọc, hy vọng Toàn sẽ cười to hơn.
+Việt nhíu mày, tiếp tục chọc, hy vọng Toàn sẽ cười to hơn.
 
 ```
 ?
@@ -204,7 +204,7 @@ Toàn nhắn lại, giọng pha chút tức giận, nhưng đã bắt đầu đ�
 😡.
 ```
 
-Nam nhếch môi, gõ nhanh, giọng điệu pha chút chọc ghẹo.
+Việt nhếch môi, gõ nhanh, giọng điệu pha chút chọc ghẹo.
 
 ```
 Từ từ đã.
@@ -221,7 +221,7 @@ Toàn nhắn lại, giọng đầy bất lực, nhưng đã có chút lạc quan
 Tìm nym = giải quyết vấn đề.
 ```
 
-Nam lắc đầu, quyết định đẩy thêm một câu để Toàn phải phản ứng.
+Việt lắc đầu, quyết định đẩy thêm một câu để Toàn phải phản ứng.
 
 ```
 Xong tao với e đi in là đẹp.
@@ -234,7 +234,7 @@ J.
 😓.
 ```
 
-Nam bật cười, gõ nhanh, giọng nghiêm túc xen lẫn hài hước.
+Việt bật cười, gõ nhanh, giọng nghiêm túc xen lẫn hài hước.
 
 ```
 Mơ.
@@ -251,7 +251,7 @@ Chuyên mục thế là hết rồi.
 Hẹn gặp các bạn ở những chương trình sau.
 ```
 
-Nam nhíu mày, cảm giác bực mình xen lẫn lo lắng, nhưng cậu quyết định chọc thêm.
+Việt nhíu mày, cảm giác bực mình xen lẫn lo lắng, nhưng cậu quyết định chọc thêm.
 
 ```
 ?
@@ -263,7 +263,7 @@ Hẹ hẹ.
 
 Toàn nhắn lại, giọng yếu ớt, nhưng đã có chút dí dỏm.
 
-Nam nhếch môi, tiếp tục chọc để Toàn bật cười.
+Việt nhếch môi, tiếp tục chọc để Toàn bật cười.
 
 ```
 ?
@@ -277,7 +277,7 @@ Toàn nhắn lại, giọng pha chút tức giận, nhưng đã bắt đầu đ�
 Hell nah.
 ```
 
-Nam gõ nhanh, giọng nghiêm túc xen lẫn hài hước.
+Việt gõ nhanh, giọng nghiêm túc xen lẫn hài hước.
 
 ```
 Ayo chilll.
@@ -292,7 +292,7 @@ Toàn nhắn lại, giọng nặng nề, nhưng đã có chút tự giễu.
 J.
 ```
 
-Nam bật cười, tiếp tục chọc để Toàn bật cười.
+Việt bật cười, tiếp tục chọc để Toàn bật cười.
 
 ```
 R nhìn lại và thấy quá khứu trôn.
@@ -308,7 +308,7 @@ Tôi sẽ mập mờ trở lại.
 Tạm biệt.
 ```
 
-Nam nhếch môi, gõ nhanh, giọng điệu pha chút chọc ghẹo.
+Việt nhếch môi, gõ nhanh, giọng điệu pha chút chọc ghẹo.
 
 ```
 Có bao h k mập mờ à.
@@ -325,11 +325,11 @@ Ukm.
 Sleep.
 ```
 
-Nam lắc đầu, quyết định đẩy thêm một câu để Toàn phải phản ứng.
+Việt lắc đầu, quyết định đẩy thêm một câu để Toàn phải phản ứng.
 
 ```
 Xong thức đến 3h.
 TIên đoán tương lai.
 ```
 
-Cậu đặt điện thoại xuống, ánh sáng màn hình dần tắt, để lại căn phòng chìm trong bóng tối. Nam biết, Toàn vẫn còn mập mờ, vẫn còn những khoảnh khắc sẽ lại chìm vào ký ức. Nhưng đêm nay, ít nhất, thằng bạn đã cười, đã nói, và đã nhẹ lòng hơn, dù chỉ một chút.
+Cậu đặt điện thoại xuống, ánh sáng màn hình dần tắt, để lại căn phòng chìm trong bóng tối. Việt biết, Toàn vẫn còn mập mờ, vẫn còn những khoảnh khắc sẽ lại chìm vào ký ức. Nhưng đêm nay, ít nhất, thằng bạn đã cười, đã nói, và đã nhẹ lòng hơn, dù chỉ một chút.
