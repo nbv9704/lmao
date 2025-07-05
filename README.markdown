@@ -1,4 +1,4 @@
-# Những Suy Tư Đêm Khuya: Một Tiểu Thuyết Ngắn Về Tình Bạn
+# Những Suy Tư Đêm Khuya: Một Tiểu Thuyết Ngắn Về Thông Não
 
 ## Tổng quan
 
